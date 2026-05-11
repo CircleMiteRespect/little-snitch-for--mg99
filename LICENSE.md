@@ -1,4 +1,4 @@
-# 
+# new Little Snitch for macOS Integration | ad-blocker + junk-file-cleanup offers the most advanced Little Snitch for macOS integration, with ad-blocker and junk-file-cleanup. Ideal
 
 
 
